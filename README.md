@@ -1,0 +1,2 @@
+# bananacoin
+BANANACOIN is a distributed autonomous project cooperated by the anonymous team of V-system blockchain and the main chain of Firecoin. It is also the decentralized blockchain experiment of the next generation after dogecoin. 100% tokens are held and promoted by V-system believers for four years, and are spread by the majority of V-friends, so that all the pits that V-friends stepped on in recent years can be earned in BANANACOIN, giving loyal believers a rich return on digital assets.
